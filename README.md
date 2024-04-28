@@ -1,1 +1,1 @@
-Link: https://mihtluv.github.io/reviewRS/
+Link: https://ntmi2k3.github.io/reviewRS/
